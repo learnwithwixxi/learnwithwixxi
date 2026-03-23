@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Wixxi
+- 👀 I’m interested in cloud and decentralized shii 
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate with everybody
+- 📫 How to reach me email: learnwithwixxi@outlook.com
